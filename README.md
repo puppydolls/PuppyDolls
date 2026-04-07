@@ -1,5 +1,4 @@
-FUCK REPOSITORY BRO UGGHHHHHHHHHHHHHH
-⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=CC9F96&label=branzylings&style=plastic)⠀![](https://files.catbox.moe/o9ijm2.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=puppyDolls&color=CC9F96&label=branzylings&style=plastic)
 ⠀⠀
 ⠀
 ⠀
