@@ -9,4 +9,4 @@
 ⠀
 ⠀<img src="https://i.postimg.cc/ZKWKMrsN/Untitled510-20260407102515.png" width="300" align="right">  
 ⠀
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hbfgw2xd5ruhjuuzlyrqccvrfe&cover_image=false&theme=novatorem&show_offline=false&background_color=9a5ea6&interchange=true&profanity=false&bar_color=ab8679&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://i.postimg.cc/135trkxC/Untitled510-20260407103950.png" width="150" align="middle"> 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hbfgw2xd5ruhjuuzlyrqccvrfe&cover_image=false&theme=novatorem&show_offline=false&background_color=9a5ea6&interchange=true&profanity=false&bar_color=ab8679&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://i.postimg.cc/135trkxC/Untitled510-20260407103950.png" width="120" align="middle"> 
