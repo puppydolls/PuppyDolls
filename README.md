@@ -4,4 +4,4 @@
 ⠀
 <img src="https://i.postimg.cc/ZYNQhkCP/Untitled572-20260516201937.png" width="200" align="center">
 ⠀
-⠀⠀wip.
+⠀⠀[rentry](https://rentry.co/vinelove)
