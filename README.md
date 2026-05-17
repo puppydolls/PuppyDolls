@@ -1,5 +1,4 @@
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤ⠀⠀⠀ㅤ ![](https://komarev.com/ghpvc/?username=puppyDolls&color=B45922&label=♡(　-´ω`-)⠀&style=plastic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=puppyDolls&color=B45922&label=♡(　-´ω`-)⠀&style=plastic)
 ⠀⠀
 
 
@@ -13,4 +12,4 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀c+h⠀encouraged⠀⠀✦⠀⠀[rentry](https://rentry.co/vinelove)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h⠀enc'd⠀⠀✦⠀⠀[rentry](https://rentry.co/vinelove)
